@@ -89,6 +89,8 @@ How do successful people (top athletes, successful entrepreneurs) start their da
 Is love spontaneous? Dr Alain argues that love is being romantisiced by pop culture and nobody talks about the hard parts.
 Love, like most things, is a skill.
 
+-------
+
 _"A calm mind, a fit body and a house full of love: These things cannot be bought, they must be earned."_
 
 ## Thank you!
