@@ -55,7 +55,7 @@ Here are some of the resources that have helped me redefine some of the ways in 
 
 ## My Happy road
 
-### 📖 The Courage To Be Disliked - Ichiro Kishimi [link](https://www.amazon.de/-/en/Ichiro-Kishimi/dp/1501197274)
+### [📖 book] The Courage To Be Disliked - Ichiro Kishimi [link](https://www.amazon.de/-/en/Ichiro-Kishimi/dp/1501197274)
 How to free yourself, change your life and achieve real happiness 
 
 Although I am not a big fan of the title this book is about [Alfred Adler's](https://en.wikipedia.org/wiki/Alfred_Adler) psychology.
@@ -68,23 +68,23 @@ Adler suggested focusing on how a current decision will affect the future (teleo
 
 Here is a [review](https://medium.com/@dlishego/alfred-adler-the-courage-to-be-disliked-d24b4d72a778) on the book.
 
-### Joe Rogan Experience #1309 - Naval Ravikant [link](https://www.youtube.com/watch?v=3qHkcs3kG44&t=4908s)
+### [🎙 podcast] Joe Rogan Experience #1309 - Naval Ravikant [link](https://www.youtube.com/watch?v=3qHkcs3kG44&t=4908s)
 Naval Ravikant is an entrepreneur and angel investor, a co-author of Venture Hacks, and a co-maintainer of AngelList.
 He has an interesting take on life and happiness which starts around 15:00.
 
-### Dopamine - Andrew Huberman [link](https://www.youtube.com/watch?v=QmOF0crdyRU)
+### [🎙 podcast] Dopamine - Andrew Huberman [link](https://www.youtube.com/watch?v=QmOF0crdyRU)
 After all we are also the result of our hormones. A take on dopamine, a hormone that's constantly manipulated by social media and abused by things such as gaming and porn.
 Dopamine appears when we get a "win". Dr Huberman argues that we should rather learn to enjoy the journey and not the "win", otherwise after the win we just get depressed and look for the next win.
 
 ## Other interesting reads
-### 📖 You're not listening - Kate Murply [link](https://www.amazon.de/Youre-Not-Listening-Missing-International/dp/1250760348/ref=asc_df_1250760348_nodl?tag=googshopde-21&linkCode=df0&hvadid=407409288703&hvpos=&hvnetw=g&hvrand=4100153239765215084&hvpone=&hvptwo=&hvqmt=&hvdev=m&hvdvcmdl=&hvlocint=&hvlocphy=9043090&hvtargid=pla-862272798678&psc=1&th=1&psc=1&tag=&ref=&adgrpid=86815916853&hvpone=&hvptwo=&hvadid=407409288703&hvpos=&hvnetw=g&hvrand=4100153239765215084&hvqmt=&hvdev=m&hvdvcmdl=&hvlocint=&hvlocphy=9043090&hvtargid=pla-862272798678&dplnkId=7e8f8b48-dbf4-4286-8c67-13762cf76ddb)
+### [📖 book] You're not listening - Kate Murply [link](https://www.amazon.de/Youre-Not-Listening-Missing-International/dp/1250760348/ref=asc_df_1250760348_nodl?tag=googshopde-21&linkCode=df0&hvadid=407409288703&hvpos=&hvnetw=g&hvrand=4100153239765215084&hvpone=&hvptwo=&hvqmt=&hvdev=m&hvdvcmdl=&hvlocint=&hvlocphy=9043090&hvtargid=pla-862272798678&psc=1&th=1&psc=1&tag=&ref=&adgrpid=86815916853&hvpone=&hvptwo=&hvadid=407409288703&hvpos=&hvnetw=g&hvrand=4100153239765215084&hvqmt=&hvdev=m&hvdvcmdl=&hvlocint=&hvlocphy=9043090&hvtargid=pla-862272798678&dplnkId=7e8f8b48-dbf4-4286-8c67-13762cf76ddb)
 
 Despite living in a world where technology allows constant digital communication and opportunities to connect, it seems no one is really listening or even knows how. And it's making us lonelier, more isolated, and less tolerant than ever before. A listener by trade, New York Times contributor Kate Murphy wanted to know how we got here.
 
-### Tools of titans - Tim Ferris [link](https://www.amazon.de/-/en/Timothy-Ferriss/dp/1328683788)
+### [📖 book] Tools of titans - Tim Ferris [link](https://www.amazon.de/-/en/Timothy-Ferriss/dp/1328683788)
 How do successful people (top athletes, successful entrepreneurs) start their day? Do they have breakfast, meditate (80% of them do mediate daily!), which books do they usually gift to their friends?
 
-### On relationships: Alain de Botton on Romanticism [link](https://youtu.be/sPOuIyEJnbE)
+### [📹 video] On relationships: Alain de Botton on Romanticism [link](https://youtu.be/sPOuIyEJnbE)
 Is love spontaneous? Dr Alain argues that love is being romantisiced by pop culture and nobody talks about the hard parts.
 Love, like most things, is a skill.
 
