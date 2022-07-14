@@ -25,8 +25,8 @@ It often had to do with environmental factors as
 1. Economical crisis 
 1. Unemployed
 1. Being broke!
-_
-Being sad is often a sign that you need to act on something. So listen to what your sadness is telling you. 
+
+_Being sad is often a sign that you need to change something. So listen to what your sadness is telling you. 
 Consider if you should really change something.
 In my case, I changed country, developed my skills, and got a job in tech. 
 As a friend once said, it's one of the least stressful professions and it pays well. 
@@ -83,7 +83,7 @@ How do successful people (top athletes, successful entrepreneurs) start their da
 Is love spontaneous? Dr Alain argues that love is being romantisiced by pop culture and nobody talks about the hard parts.
 Love, like most things, is a skill.
 
-_"A calm mind, a fit body and a house full of love: These things cannot be bought, they must be earned."
-_
+_"A calm mind, a fit body and a house full of love: These things cannot be bought, they must be earned."_
+
 ## Thank you!
-I hope you enjoyed reading this! Let me know if you have interesting resources in mind! :)
+I hope you enjoyed reading this! Let me know if you have any more interesting resources in mind! :)
