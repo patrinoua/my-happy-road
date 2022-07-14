@@ -49,8 +49,9 @@ cc: Matthew Walker on Joe Rogan [link](https://www.youtube.com/watch?v=pwaWilO_P
 - **Zoom out**. When I'm feeling stressed I try to zoom out and realize these are all "first world problems", very much solvable.
 - **Meditate daily**. I strongly believe in the [benefits of a daily meditation](https://www.google.com/search?q=scientific+benefits+of+meditation&oq=scientific+benefits+o&aqs=chrome.1.0i512l2j69i57j0i512l7.6377j0j7&sourceid=chrome&ie=UTF-8) practice and hope to add this in my daily routine.
 - **I exercice**. Twice per week I hit the gym and get some good old endorfines!
+- **I avoid toxic relationships**. If someone is giving me trouble, I try to understand where this is coming from, and perhaps try to "solve it". However, resolutions are not always possible so some times it's wise to limit communications or cut off. 
 - **I keep a diary**. Not every day and not because I have to. I believe that discussing things with others is great, but discussing them with your self is even better! I keep a diary for good times, rough times, or just when I want to think deeper on a specific topic. I've been keeping a diary since I was 6 years old and it's also great to reconnect with my past selves, see the differences in believes, approach, remember details of past situations, trips and other fun stuff :) Some times I'm ranting out too, which can be therapeutic as you just "get it out of your system!". I recommend it to everyone!
- 
+
 Here are some of the resources that have helped me redefine some of the ways in which I look at things and build a happy path along the way:
 
 ## My Happy road
