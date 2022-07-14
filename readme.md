@@ -4,7 +4,7 @@ I'm currently going through one of the most peaceful phases of my life. But it h
 ### Accidentally depressed?
 
 When I was 18 I felt a little blue! I used to listen to quite depressive music 
-like Anathema, Opeth, Archive, Pink Floyd and all that Jazz! This is some great music but it's rather on the being blue side of things!
+like Anathema, Opeth, Archive, Pink Floyd and all that jazz! This is some great music but it's rather on the being blue side of things!
 So one day I wondered, "am I depressed and this is why I'm listening to depressive music, or do I listen to depressive
 music and this makes me depressed"?
 
@@ -42,12 +42,15 @@ _On my happiness journey I realised that being happy is a skill: You need to wor
 ### Today
 So what do I do today?
 
-- I sleep: I now know the importance of sleep, I know there are morning birds and night owls AND THAT's ok (thank you dr Walker! 
+- **I sleep**. I now know the importance of sleep, I know there are morning birds and night owls AND THAT's ok (thank you dr Walker! 
 cc: Matthew Walker on Joe Rogan [link](https://www.youtube.com/watch?v=pwaWilO_Pig), Why we sleep [link](https://www.amazon.de/-/en/Matthew-Walker-PhD/dp/1501144316)) so I make sure I sleep always around the same time (2AM) and wake up (with out an alarm!) around 9:30. Luckily enough I'm not in a job where "I have to be there by 8". 
-- I wake up. I drink a glass of water. I smile.
-- One thing I still have not managed to do is meditate daily. I strongly believe in the [benefits of a daily meditation](https://www.google.com/search?q=scientific+benefits+of+meditation&oq=scientific+benefits+o&aqs=chrome.1.0i512l2j69i57j0i512l7.6377j0j7&sourceid=chrome&ie=UTF-8) practice and hope to add this in my daily routine.
-- I exercice: Twice per week I hit the gym and get some good old endorfines!
-
+- **I wake up**. I drink a glass of water. I smile.
+- **I appreciate what I have**
+- **Zoom out**. When I'm feeling stressed I try to zoom out and realize these are all "first world problems", very much solvable.
+- **Meditate daily**. I strongly believe in the [benefits of a daily meditation](https://www.google.com/search?q=scientific+benefits+of+meditation&oq=scientific+benefits+o&aqs=chrome.1.0i512l2j69i57j0i512l7.6377j0j7&sourceid=chrome&ie=UTF-8) practice and hope to add this in my daily routine.
+- **I exercice**. Twice per week I hit the gym and get some good old endorfines!
+- **I keep a diary**. Not every day and not because I have to. I believe that discussing things with others is great, but discussing them with your self is even better! I keep a diary for good times, rough times, or just when I want to think deeper on a specific topic. I've been keeping a diary since I was 6 years old and it's also great to reconnect with my past selves, see the differences in believes, approach, remember details of past situations, trips and other fun stuff :) Some times I'm ranting out too, which can be therapeutic as you just "get it out of your system!". I recommend it to everyone!
+ 
 Here are some of the resources that have helped me redefine some of the ways in which I look at things and build a happy path along the way:
 
 ## My Happy road
