@@ -91,7 +91,8 @@ Love, like most things, is a skill.
 
 -------
 
-_"A calm mind, a fit body and a house full of love: These things cannot be bought, they must be earned."_
+"A calm mind, a fit body and a house full of love: These things cannot be bought, they must be earned."
+-------
 
 ## Thank you!
 I hope you enjoyed reading this! Let me know if you have any more interesting resources in mind! :)
