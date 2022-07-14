@@ -34,11 +34,7 @@ Oh, and I made [work-in-tech.org](work-in-tech.org) if you also want to try that
 ### Just a blue feeling
 Even though some of the biggest problems may be solved, you still may bear blue feelings.
 
-On my happines journey I realised:
-
-Being happy is a skill: You need to work for it, in the same way that you need to work for anything else
-
-Here are some of the resources that have helped me redefine and find happiness along the way:
+On my happines journey I realised that being happy is a skill: You need to work for it, in the same way that you need to work for anything else
 
 ### Today
 So what do I do today?
@@ -52,7 +48,9 @@ Luckily (is it luck though?) enough I'm not in a job where "I have to be there b
 - I exercice: Twice per week I hit the gym and get some good endorfines!
 - One thing I still have not managed to do is meditate daily. I strongly believe in the [benefits of a daily meditation](https://www.google.com/search?q=scientific+benefits+of+meditation&oq=scientific+benefits+o&aqs=chrome.1.0i512l2j69i57j0i512l7.6377j0j7&sourceid=chrome&ie=UTF-8) practice and hope to add this in my daily routine.
 
-## Happiness resources
+Here are some of the resources that have helped me redefine and find happiness along the way:
+
+## The Happy road
 
 ### 📖 The Courage To Be Disliked - Ichiro Kishimi [link](https://www.amazon.de/-/en/Ichiro-Kishimi/dp/1501197274)
 How to free yourself, change your life and achieve real happiness 
