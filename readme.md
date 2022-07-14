@@ -5,7 +5,7 @@ I'm currently going through one of the most peaceful phases of my life. But it h
 
 When I was 18 I felt a little blue! I used to listen to quite depressive music 
 like Anathema, Opeth, Archive, Pink Floyd and all that Jazz! This is some great music but it's rather on the being blue side of things!
-So I wondered, "am I depressed and this is why I'm listening to depressive music, or do I listen to depressive
+So one day I wondered, "am I depressed and this is why I'm listening to depressive music, or do I listen to depressive
 music and this makes me depressed"?
 From "sad rock" (a term that I've just invented!) I turned to electroswing and electropop. 
 
@@ -13,10 +13,11 @@ And guess what? My mood very much improved.
 
 Even though these bands and their songs are still in my heart I don't listen to them anymore.
 
-What did I get out of this? Some times, small changes in your environment can really affect your mood.
+What did I get out of this? 
+_Some times, small changes in your environment can really affect your mood.
 If you want to be happy, make sure you're not conditioning your self to be sad, by listening to "sad music", 
 reading sad books or... thinking too much! 
-
+_
 ### Circumstantially depressed
 There have been other periods, where was a bigger darkness in my head and I felt blue [add blue drawing here].
 
@@ -24,17 +25,17 @@ It often had to do with environmental factors as
 1. Economical crisis 
 1. Unemployed
 1. Being broke!
-
+_
 Being sad is often a sign that you need to act on something. So listen to what your sadness is telling you. 
 Consider if you should really change something.
 In my case, I changed country, developed my skills, and got a job in tech. 
 As a friend once said, it's one of the least stressful professions and it pays well. 
-Oh, and I made [work-in-tech.org](work-in-tech.org) if you also want to try that!
+Oh, and I made [work-in-tech.org](work-in-tech.org) if you also want to try that!_
 
 ### Just feeling blue
 Even though some of the biggest problems may be solved, you still may bear [blue feelings](https://www.youtube.com/watch?v=68ugkg9RePc).
 
-On my happiness journey I realised that being happy is a skill: You need to work for it, in the same way that you need to work for anything else.
+_On my happiness journey I realised that being happy is a skill: You need to work for it, in the same way that you need to work for anything else._
 
 ### Today
 So what do I do today?
@@ -82,7 +83,7 @@ How do successful people (top athletes, successful entrepreneurs) start their da
 Is love spontaneous? Dr Alain argues that love is being romantisiced by pop culture and nobody talks about the hard parts.
 Love, like most things, is a skill.
 
-"A calm mind, a fit body and a house full of love: These things cannot be bought, they must be earned."
-
+_"A calm mind, a fit body and a house full of love: These things cannot be bought, they must be earned."
+_
 ## Thank you!
 I hope you enjoyed reading this! Let me know if you have interesting resources in mind! :)
