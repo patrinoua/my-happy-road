@@ -14,6 +14,7 @@ And guess what? My mood very much improved.
 Even though these bands and their songs are still in my heart I don't listen to them anymore.
 
 What did I get out of this? 
+
 _Some times, small changes in your environment can really affect your mood.
 If you want to be happy, make sure you're not conditioning your self to be sad, by listening to "sad music", 
 reading sad books or... thinking too much!_
