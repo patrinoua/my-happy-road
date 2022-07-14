@@ -21,7 +21,7 @@ If you want to be happy, make sure you're not conditioning your self to be sad, 
 reading sad books or... thinking too much!_
 
 ### Circumstantially depressed
-There have been other periods, where was a bigger darkness in my head and I felt blue [add blue drawing here].
+There have been other periods, where was a bigger darkness in my head and I felt [blue](https://www.youtube.com/watch?v=68ugkg9RePc).
 
 It often had to do with environmental factors as 
 1. Economical crisis 
@@ -35,7 +35,7 @@ As a friend once said, it's one of the least stressful professions and it pays w
 Oh, and I made [work-in-tech.org](work-in-tech.org) if you also want to try that!_
 
 ### Just feeling blue
-Even though some of the biggest problems may be solved, you still may bear [blue feelings](https://www.youtube.com/watch?v=68ugkg9RePc).
+Even though some of the biggest problems may be solved, you still may bear blue feelings.
 
 _On my happiness journey I realised that being happy is a skill: You need to work for it, in the same way that you need to work for anything else._
 
