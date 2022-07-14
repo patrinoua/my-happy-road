@@ -7,6 +7,7 @@ When I was 18 I felt a little blue! I used to listen to quite depressive music
 like Anathema, Opeth, Archive, Pink Floyd and all that Jazz! This is some great music but it's rather on the being blue side of things!
 So one day I wondered, "am I depressed and this is why I'm listening to depressive music, or do I listen to depressive
 music and this makes me depressed"?
+
 From "sad rock" (a term that I've just invented!) I turned to electroswing and electropop. 
 
 And guess what? My mood very much improved.
