@@ -24,7 +24,7 @@ reading sad books or... thinking too much!_
 There have been other periods, where was a bigger darkness in my head and I felt [blue](https://www.youtube.com/watch?v=68ugkg9RePc).
 
 It often had to do with environmental factors as 
-1. Economical crisis 
+1. Economic crisis 
 1. Unemployed
 1. Being broke!
 
